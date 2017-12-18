@@ -8,6 +8,6 @@ This is my resume pdf files, including
 5.作品集
 6.自傳
 
-Contact my via [linkedin](https://www.linkedin.com/in/shih-hsuan-lee/) or [Email](a1106052000@gmail.com) , thanks.
+Please contact me via [linkedin](https://www.linkedin.com/in/shih-hsuan-lee/) or a1106052000@gmail.com , thanks.
 
 
