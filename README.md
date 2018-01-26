@@ -9,7 +9,7 @@ This is my resume pdf files, including
 6.自傳
 7.cover letter
 
-You can view the files online or download via https/git.
+You can view the files online or download via green button on the right side.
 
 Contact me via [linkedin](https://www.linkedin.com/in/shih-hsuan-lee/) or a1106052000@gmail.com , thanks.
 
