@@ -7,7 +7,6 @@ This is my resume pdf files, including
 4.大學成績單
 5.作品集
 6.自傳
-7.cover letter
 
 You can view the files online or download via green button on the right side.
 
